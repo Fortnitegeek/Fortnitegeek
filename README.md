@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Fortnitegeek
-- 👀 I’m interested in fortnite
+- 👀 I’m interested in fortnite my account name is soccerbew
 - 🌱 I’m currently learning fortnite
 - 💞️ I’m looking to collaborate on fortnite
 - 📫 How to reach me landghint77@isd194.org
